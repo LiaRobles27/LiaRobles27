@@ -1,5 +1,5 @@
 ## HOLAAAAA
-<img width="2160" height="3840" alt="1792597928275" src="https://github.com/user-attachments/assets/1e50fc0e-4499-4e62-a8f0-a80c4cc4b786" />
+<img width="216" height="384" alt="1792597928275" src="https://github.com/user-attachments/assets/1e50fc0e-4499-4e62-a8f0-a80c4cc4b786" />
 
 Esta es mi receta de tortilla de papa.
 Se necesita 1/2 cebolla, 1 patata mediana y unos 4-5 huevos
